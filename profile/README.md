@@ -24,7 +24,7 @@
 |허진수|[HJTN](https://github.com/HJTN)|zintnm21@gmail.com|
 |배영랑|[]()||
 |김재원|[]()||
-|박지인|[]()||
+|박지인|[pjiin22](https://github.com/pjiin22)|kelly6161@naver.com|
 |주선대|[]()||
 
 ## 🏆 DATTO 명예 전당
