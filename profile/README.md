@@ -26,6 +26,7 @@
 
 ## DATTO 모집 공고 & 운영 방침 👇
 [⚖️ 운영 방침 확인하러 가기](https://knu-haedal.notion.site/2026-1-DATTO-310837fdd1cb80f28e21fec1f2a6ff0d?pvs=143)
+
 [📰 2026년도 1학기 DATTO 모집 공고](https://knu-haedal.notion.site/2026-1-DATTO-310837fdd1cb801aa9a1f49c3f08a2bf?pvs=143)
 
 ## 👨‍👩‍👧‍👦 현 DATTO 운영진
